@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Avishek817
+- 👋 Hi, I’m Avishek
 - 👀 I’m interested in reading novels
 - 🌱 I’m currently learning website desing and programming language
 - 💞️ I’m looking to collaborate on startups
